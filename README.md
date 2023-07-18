@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LadderCat, a UX content strategist at Ladder
+- 👋 Hi, I’m @LadderCat, a UX content designer at Ladder
 - 👀 I’m interested in dogs, cooking, F1, movies, books, news, travel
 - 🌱 I’m currently learning more about accessibility in content design
 - 💞️ I’m looking to collaborate on any and all content-related projects or problems
